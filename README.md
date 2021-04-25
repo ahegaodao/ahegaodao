@@ -1,4 +1,6 @@
 
+![Ahegao DAO](AAH_new_logo200x200.png "Ahegao DAO")
+
 Ahegao DAO is a distributed autonomous organization built around erotic anime (hentai) culture. We bootstrapped ourselves as a team of artists, web and blockchain developers and created a line of beautiful women that make up our harem. We are building an organization that allows our community to earn beautiful NFTs of all of our exotic women. 
 
 Meet our beautiful Donna Rug. Native to her crypto habitat she feels most comfortable exposing herself on the finest of Persian rugs. Donna is a special NFT girl of the Ahegao DAO platform. Owners of this special NFT have the ability to swap for 1,000,000 AAH token on our platform. Holders of the original Donna Rug also have access to the first 8 NFTs created by our DAO, depicting our 8 original women. Join our community to find how to add Donna to your collection.
